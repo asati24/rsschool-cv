@@ -1,0 +1,2 @@
+## Altynai Satybaldy
+#### Frontend Developer
